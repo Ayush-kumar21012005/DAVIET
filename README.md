@@ -1,1 +1,1 @@
-# DAVIET-PALAMU.github.io
+# DAVIET-PALAMU
